@@ -1,1 +1,1 @@
-# bodybuildring.info.io
+# bodybuildring.github.io
